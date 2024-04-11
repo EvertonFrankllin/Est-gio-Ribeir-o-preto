@@ -6,4 +6,4 @@
 ## As demais respostas estão no HTML que pode ser impressa em qualquer navegador.
 Desde já agraço a oprtunidade e espero que considerem minha candidatura.
 
-Atte.: Everton Frankllin Pereira Silva - 11/04/2024 - 13:30.
+Atte.: Everton Frankllin Pereira Silva - 11/04/2024.
